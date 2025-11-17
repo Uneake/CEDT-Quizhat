@@ -1,1 +1,0 @@
-# FinalProjectGroup23Quizhat
